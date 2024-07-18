@@ -1,3 +1,3 @@
 Hello Everyone,
 
-Here are the case study on few of my designs.
+Here are the case studies on few of my design projects.
